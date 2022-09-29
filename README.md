@@ -1,5 +1,5 @@
 yeah so I'm Kit and I do things I guess
-won't be online here often as I don't do coding a lot
+- won't be online here often as I don't do coding a lot
 
 
 
